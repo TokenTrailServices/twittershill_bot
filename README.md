@@ -1,2 +1,24 @@
-# twittershill_bot
-Twitter Shilling Bot 🔥 Shill Your Project, Send DOZENS OF COMMENS To Tweets! Twitter Hashtag Comment Shiller, Twitter Bot, Twitter Shiller Marketing, Twitter Python Comment Shill Bot
+# !! TWITTER (X) AUTO SHILL BOT !!
+● You cannot run the bot using the .py code from this repository. This requires the full version of the bot. ❗
+
+● DM me from Telegram (https://t.me/TokenTrailCeo) if you want to buy full version of the bot. 📭
+
+● Prices are negotiable. 👍
+
+✅ Works for all systems!
+
+✅ Shill with ANY HASHTAG on TWITTER you want!
+
+✅ Lots of unique features!
+
+✅ No ban!
+
+✅ Works with the speed of light!
+
+✅ Cheap Prices!
+
+✅ Easy to run!
+
+✅ 100% Automatic!
+
+✅ DM me for more info. (https://t.me/TokenTrailCeo)
